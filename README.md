@@ -1,2 +1,2 @@
-# Repository-name-
+# failas iš komputerio
 KJJG burelis
